@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @dxanh
+- 👀 I’m interested in nothing
+- 🌱 I’m currently learning to be a human.
+- 💞️ I’m looking to collaborate with someone who wants to be a human too. :D
+- 📫 How to reach me ...
